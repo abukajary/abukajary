@@ -46,3 +46,9 @@
 Мой дипломный проект: [https://www.mobileplus.store/](https://www.mobileplus.store/) (Оценка: 80/100)
 
 **Диплом, Информационные Системы | Suleyman Demirel College (2016 –2019)**
+
+---
+
+## Хотите скачать мое резюме7
+
+**[СКАЧАТЬ](https://drive.google.com/file/d/1a1bd7tdsRg17hbfVkjo0k3Hr37hftYVy/view?usp=sharing)**
