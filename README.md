@@ -1,9 +1,9 @@
 # АБУБАКИР ЖАРЫЛГАПОВ
 
 **СИСТЕМНЫЙ АНАЛИТИК**  
-📞 +7 (708) 807 13 37  
-📧 jarylgapov.abubakir@gmail.com  
-📨 [Telegram](https://t.me/jarylgap)
++7 (708) 807 13 37  
+jarylgapov.abubakir@gmail.com  
+[Telegram](https://t.me/jarylgap)
 
 ---
 
